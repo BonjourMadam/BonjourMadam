@@ -1,4 +1,4 @@
-### Hi there 👋, @
+### Hi there 👋
 #### Portfolio:
 ![Portfolio:](https://i.ibb.co/XYBzKLz/SPRK-default-preset-name-web-1920-1.png)
 
